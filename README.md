@@ -1,4 +1,4 @@
-# 💫 About Me:
+
 Outlier Generalist<br>Building @NeoSmart Labs<br>AI Product Engineer<br>
 
 
